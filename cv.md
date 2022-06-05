@@ -1,5 +1,8 @@
 # Diana Pashkevich
 ### Customer care support specialist
+
+![This is an image](blob:https://web.telegram.org/7672bc78-1ea7-4785-82ab-d4eca8380dac)
+
 ## Personal details:
 **Nationality: Belarusian**
 
@@ -40,12 +43,12 @@
 
 *Aug 2019- Aug 2021*
 
-***Volunteer***
+***Volunteer-***
 *BELGAZPROMBANK Cup*
 
 *Aug 2019*
 
-***Volunteer***
+***Volunteer-***
 *SEHA-GAZPROM League (Final)*
 
 *Apr 2019*
