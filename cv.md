@@ -23,3 +23,29 @@
 
 > ***Team worker***
 
+## Academic history:
+> ***Brest State University named after A.S.Pushkin-***
+**Bachelor's Degree in teaching English as a foreign language**
+
+*Sep 2015 - Jun 2019*
+
+## Work Experience:
+***Customer care support specialist-***
+*Merkeleon P. SP. Z OO(Softswiss)*
+
+*Oct 2021- till present*
+
+***Teacher of English-***
+*State school*
+
+*Aug 2019- Aug 2021*
+
+***Volunteer***
+*BELGAZPROMBANK Cup*
+
+*Aug 2019*
+
+***Volunteer***
+*SEHA-GAZPROM League (Final)*
+
+*Apr 2019*
